@@ -31,3 +31,17 @@ https://github.com/user-attachments/assets/4d793848-90c4-40fa-826e-092e4b84bf3f
 
 https://github.com/user-attachments/assets/bf65cd25-1640-46d2-a08a-9eb633c2cdd8
 
+
+## Ejercicio 6
+
+
+https://github.com/user-attachments/assets/e6677866-e8f2-45f0-a831-71a728e64fc0
+
+
+## Ejercicio 7
+
+
+
+https://github.com/user-attachments/assets/ca7e3b38-d4ef-4590-ae17-6f3b97848272
+
+
